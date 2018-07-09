@@ -1,1 +1,1 @@
-# intibet
+# Life in Tibet
